@@ -1,2 +1,2 @@
 # Belajar Kolaborasi
-Belajar bersama
+Belajar bersama Dicoding!
